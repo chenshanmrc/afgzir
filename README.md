@@ -1,0 +1,2 @@
+# afgzir
+Daily digest notes
